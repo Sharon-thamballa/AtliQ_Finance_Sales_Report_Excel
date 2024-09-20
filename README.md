@@ -29,7 +29,9 @@ Technical Skills Gained:
 
 Soft Skills Gained:
 
-•	Refined understanding of Finance & Sales Reports
+•	Refined understanding of Finance & Sales Reports.
+
+•	Designing user-centric reports with empathy in mind.
 
 
 
